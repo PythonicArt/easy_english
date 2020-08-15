@@ -10,16 +10,13 @@ derive from
 3. 总结
 
 
-Ladies and gentleman, let me introduce a common word for you tonight, it is sensible. 3x.
+Ladies and gentlemen, let me introduce a common word for you tonight, it is sensible. It derives from sense. Senses are the physical abilities of sight, smell, hearing, touch, and taste. And sensible is an adjective use of it.
 
-It derives from sense. 'Sense' are the physical abilities of sight, smell, hearing, touch, and taste. And sensible is an adjective use of it.
+First, we can use it to describe items, people, and actions. Sensible shoes or clothes are practical and strong rather than fashionable and attractive. So, if you have a pair of shoes which you have worn for many years, you can say that it is sensible.  Sensible actions or decisions are good because they are based on reasons rather than emotions. When you do sth to make more gains or to avoid losses, you may describe that you made a sensible choice or you can say you are sensible. So, for everyone who comes here tonight to join the meeting, you are sensible.
 
-First, we can use it to describe items, poeple and their actions.
-Sensible shoes or clothes are practical and strong rather than fashionable and attractive.So, if you have a pair of shoes which you have worn for many years, you can say that it is sensible.  Sensible actions or decisions are good because they are based on reasons rather than emotions. When you do sth to make more gains or to avoid more losses, you may describe that you made a sensible choice and you can say you are sensible. So, for erveryone who comes here tonight to join the meeting, you are sensible.
+There is another common term use of it, it is 'be sensible of sth'.   When you are sensible of sth, you become aware of it or you realize it, although it is not very obvious.  When there is a man who is rushing at you with a large knife, you are sensible of it so you pull out your gun and ... When you are on the subway, there is a pretty girl or boy who is smiling at you, you are sensible of it so you pull out your gun, oh no, pull out your mobile phone and say hello to them.
 
-There is another common term use of sensible, it is 'be sensible of sth'.   When you are sensible of sth, you become aware of it or you realize it, although it is not very obvious.  When there is a man who is rushing toward you with a large knife, you are sensible of it so you pull out your gun and ... When you are on the subway, there is a pretty girl or boy who is smiling at you, you are sensible of it so you pull out your gun, oh no , pull out your mobile phone and say may i have your name.
-
-Let's make a conclusion. We learn an adjective tonight - sensible. It means percitiable and resonable. We also lean a term -- 'be sensible of'. In a word, you can say that a person wearing a sensible T-shirt is sensible wnen he or she can be sensible of sth that is sensible.  
+Let's conclude. Tonight our word is sensible. It means perceptible and reasonable. We also lean a term - 'be sensible of'. In a word, you can say that a pretty boy wearing sensible glasses is sensible when he or she can be sensible of sth that is sensible.
 
 
 sensible
