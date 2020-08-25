@@ -36,12 +36,21 @@ gorgeous 壮观的，非常漂亮的
 <!-- Maybe not. But things are not that bad. To be a single is not a crime And there is a effective way to capture other people's heart, it is praising. -->
 
 Today is Chinese Valentine's Day and we come together to celebrate it. I see a huge smile on your face. So are you happy right now?
-If you meet a girl who catches the fancy of you, which word do you want to use to praise her? Beautiful? Sexy? Cute? And what about a boy? Beautiful? Sexy? Good?  Thre are more choices to praise someoneI so I prepare two words for you tonight. It is masculine mainly for men and gorgeous mainly for women.  
-
-If you say that a man is masculine, you mean that they have qualities such as strength or confidence which are considered typical [ˈtɪpɪkl] of men. It likes you are saying he is a real man. Everyone will be happy when he hear that.  It means he is very powerful, brave, and aggressive.
+Imaging a situation, you meet a girl you who catches the facy of you, how are you going to praise her? Beautiful? Sexy? Cute? And what about a boy? Beautiful? Sexy? Good?  I prepare two words for you tonight. It is gorgeous mainly for women and masculine mainly for men.  
 
 If you describe a woman as gorgeous, you mean that you find them very sexually attractive. Sexy appeal and attractiveness are good qualities every woman wants to have and every man likes. It signifies that she is very very beautiful and charming.
 
-Let me conclude. There are two words which are effective to praise a person tonight. Masculine and Gorgeous. You can use both of them to describe a man or a women. It will draw the attention of them immediately and increase your possibility to have a good impression of them.
+If you say that a man is masculine, you mean that they have qualities such as strength or confidence which are considered typical [ˈtɪpɪkl] of men. It likes you are saying he is a real man. He will be excited at once when he hears that.  It means he is very powerful, brave, and aggressive.
 
-So, Every masculine gentleman and gorgeous woman, Happy Chinese Valentine's Day.
+Let me conclude. There are two words tonight for you to praise a person professionally. Masculine and Gorgeous. You can use both of them to describe a man or a women when it is suitable. It will draw the attention of them immediately and make them have a very good impression of you.So, Every masculine gentleman and gorgeous woman, Happy Chinese Valentine's Day.
+
+引出主题， 为什么讲。
+
+描述， 意味着有什么特点(名词)， 对方听了会怎样, 意味着有什么特点2（形容词）。
+
+总结。 效果强化。 快速吸引注意力+留下好印象
+
+
+
+
+
